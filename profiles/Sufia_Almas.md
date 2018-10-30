@@ -2,7 +2,7 @@
 
 ### Location
 
-Bangalore, India
+Dhanbad, India
 
 ### Academics
 
